@@ -15,7 +15,7 @@ Pontstr. 172
 DE-52062 Aachen  
 Germany
 
-**Email**: contact@kabouzeid.com  
+**Email**: karim23697@gmail.com  
 **Phone**: 0162 4152187 (please prefer contact via e-mail)
 
 ### Limitation of liability
